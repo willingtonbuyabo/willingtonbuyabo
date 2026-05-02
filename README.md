@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @willingtonbuyabo
 - 👀 I’m interested in programming gaming and coding
 - 🌱 I’m currently learning energy technology
-- 💞️ I’m looking to collaborate on military programing and gaming projects
+- 💞️ I’m looking to collaborate on military programing and energy engineering projects
 - 📫 How to reach me +254716092899, willingtonbuyabo@gmail.com
 
 <!---
