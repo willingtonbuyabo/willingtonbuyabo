@@ -159,7 +159,7 @@ Research and experimentation involving:
 
 🌐 Portfolio: https://jerros.top/
 
-💼 LinkedIn: https://www.linkedin.com/in/willington-buyabo-667089213/
+💼 LinkedIn: https://www.linkedin.com/in/willingtonbuyabo/
 
 📧 Email: [willingtonbuyabo@gmail.com](mailto:willingtonbuyabo@gmail.com)
 
